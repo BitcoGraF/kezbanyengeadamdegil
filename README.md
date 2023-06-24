@@ -1,0 +1,2 @@
+# kezbanyengeadamdegil
+kezbanyenge adam değildir
